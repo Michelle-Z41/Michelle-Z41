@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Michelle-Z41
+- 🌱 I’m currently learning Translation and Localization
